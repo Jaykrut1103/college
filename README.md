@@ -1,3 +1,3 @@
 # college
 jaykrut kotadiya<br>
-jay@gmaill.com
+jay675@gmaill.com
